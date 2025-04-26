@@ -32,6 +32,16 @@ Account: https://atcoder.jp/users/Shion_urei
 * 2017.04 Bronze Medal in European Girl's Mathematical Olympiad 2017
 
 ## ArtWorks
-
+### Novels & Lyrics & Essays
+note: https://note.com/shion_uts1_novel
+* [【短編】ポン・デ・リング110円](https://note.com/shion_uts1_novel/n/ncb6267b00d41)
+* [【Lyrics】I wanna die](https://note.com/shion_uts1_novel/n/n0fdd3a08ab30)
+* [【Essay】逆張りアイデンティティ](https://note.com/shion_uts1_novel/n/n2979f09bbfb1)
   
+### Portrait
+Instagram: 
 
+
+### Music
+Coming soon…
+Drive: https://drive.google.com/drive/folders/1eafAYoo7bRy6XZlPqRTUiqKVsmG53NfP?usp=sharing
