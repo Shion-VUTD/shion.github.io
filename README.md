@@ -1,15 +1,15 @@
 # 詞音　（しおん）
 University student (math), Data scientist, Artist
 
-## %Contact%{rgb(0, 255, 255)}
+## Contact
 Instagram: [@shion_feelspecial](https://www.instagram.com/shion_feelspecial?igsh=dnZkaHcxN2NvbjI1)
 
-## %Career%{rgb(0, 255, 255)}
+## Career%{rgb(0, 255, 255)}
 * 2019.03 Graduated from Rakunan High School
 * 2020.04 Enrolled in the University of Tokyo, Science 1
 * 2022.04 Enrolled in the University of Tokyo, faculty of mathematics
 
-## %Data science%{rgb(0, 255, 255)}
+## Data science
 Github: [Shion-VUTD](https://github.com/Shion-VUTD)
 
 ### Internship
@@ -27,11 +27,11 @@ Account: [Shion_urei](https://atcoder.jp/users/Shion_urei)
 * Rating: 909
 * CodeQueen 2024 Finalist (19th)
 
-## %Mathematics%{rgb(0, 255, 255)}
+## Mathematics
 * 2017.02 Honourable Mention in Japanese Mathematical Olympiad 2017
 * 2017.04 Bronze Medal in European Girl's Mathematical Olympiad 2017
 
-## %ArtWorks%{rgb(0, 255, 255)}
+## ArtWorks
 ### Novels & Lyrics & Essays
 note: [しおん＠小説](https://note.com/shion_uts1_novel)
 * [【短編】ポン・デ・リング110円](https://note.com/shion_uts1_novel/n/ncb6267b00d41)
