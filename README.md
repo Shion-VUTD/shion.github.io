@@ -4,7 +4,7 @@ University student (math), Data scientist, Artist
 ## Contact
 Instagram: [@shion_feelspecial](https://www.instagram.com/shion_feelspecial?igsh=dnZkaHcxN2NvbjI1)
 
-## Career%{rgb(0, 255, 255)}
+## Career
 * 2019.03 Graduated from Rakunan High School
 * 2020.04 Enrolled in the University of Tokyo, Science 1
 * 2022.04 Enrolled in the University of Tokyo, faculty of mathematics
