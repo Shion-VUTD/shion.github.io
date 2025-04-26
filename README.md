@@ -40,7 +40,7 @@ note: [しおん＠小説](https://note.com/shion_uts1_novel)
   
 ### Portrait
 Instagram: [@shion_feelspecial](https://www.instagram.com/shion_feelspecial?igsh=dnZkaHcxN2NvbjI1)
-
+![img-1](https://drive.google.com/file/d/1alVipL3iJWXbkxBg3xY6oH1etx7xIbSH/view?usp=sharing)
 
 
 ### Music
