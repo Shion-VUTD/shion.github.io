@@ -2,7 +2,7 @@
 University student (math), Data scientist, Artist
 
 ## Contact
-Instagram: [@shion_frrlspecial](https://www.instagram.com/shion_feelspecial?igsh=dnZkaHcxN2NvbjI1)
+Instagram: [@shion_feelspecial](https://www.instagram.com/shion_feelspecial?igsh=dnZkaHcxN2NvbjI1)
 
 ## Career
 * 2019.03 Graduated from Rakunan High School
@@ -39,7 +39,7 @@ note: [しおん＠小説](https://note.com/shion_uts1_novel)
 * [【Essay】逆張りアイデンティティ](https://note.com/shion_uts1_novel/n/n2979f09bbfb1)
   
 ### Portrait
-Instagram: [@shion_frrlspecial](https://www.instagram.com/shion_feelspecial?igsh=dnZkaHcxN2NvbjI1)
+Instagram: [@shion_feelspecial](https://www.instagram.com/shion_feelspecial?igsh=dnZkaHcxN2NvbjI1)
 
 
 
