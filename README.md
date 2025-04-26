@@ -2,7 +2,7 @@
 University student (math), Data scientist, Artist
 
 ## Contact
-* Instagram: 
+Instagram: 
 
 ## Career
 * 2019.03 Graduated from Rakunan High School
